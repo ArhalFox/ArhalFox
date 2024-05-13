@@ -1,4 +1,4 @@
-_Olá , tudo bem_
+**Olá , tudo bom** 🖤
 
 -Sou estudante do [Alura](https://cursos.alura.com.br) 
 
