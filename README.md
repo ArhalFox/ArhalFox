@@ -1,6 +1,6 @@
 **Olá , tudo bom** " ❤️‍🔥 **æ**
 
--Sou estudante do [Alura](https://cursos.alura.com.br) 
+-  [Alura](https://cursos.alura.com.br) 
 
 -_Sou Débora mas  me chame de Arhalfox_
 
