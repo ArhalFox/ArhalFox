@@ -4,7 +4,7 @@
 
 -_Sou Débora mas  me chame de Arhalfox_
 
-![](https://media.tenor.com/zzDSkdI7T0cAAAAM/toshiruz-neobaka.gif)     
+![](https://media.tenor.com/zzDSkdI7T0cAAAAM/toshiruz-neobaka.gif)   ![](https://media.tenor.com/EUWAytKC_acAAAAM/vox-vox-akuma.gif)     
 
 **===============================================================================**
 
