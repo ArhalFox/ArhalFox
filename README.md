@@ -1,5 +1,7 @@
-**Olá , tudo bom** " ❣️ **æ**
+_ʕ￫ᴥ￩　ʔ_
 
+  **Olá , tudo bom** " ❣️ **æ**
+ 
 -  [Alura](https://cursos.alura.com.br) 
 
 -_Sou Débora mas  me chame de Arhalfox_
