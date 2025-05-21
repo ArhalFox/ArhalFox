@@ -12,7 +12,7 @@
 
 *୨୧ ┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈ ୨୧*
 
-![](https://media.tenor.com/raR0WBQ6uGoAAAAM/vigilante-deku-deku.gif)     ![](https://media.tenor.com/28viN7ldMQwAAAAM/bakugou-katsuki-bakugou.gif)_ʕ￫ᴥ￩　ʔ_
+![](https://media.tenor.com/83AwS0w9xxwAAAAM/anime-male.gif)     ![](https://media.tenor.com/UFtGFurre6AAAAAM/anime-dark.gif)_ʕ￫ᴥ￩　ʔ_
 
 <!---
 ArhalFox/ArhalFox is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
