@@ -8,7 +8,7 @@
 
 - _Meu sonho é ser uma VTUBER como o  [Toshi](https://youtu.be/WAkSaeFo3W0)  , [Tom](https://youtu.be/DFdQSH2CAME?feature=shared) ,etc._
 
- ![](https://media.tenor.com/zzDSkdI7T0cAAAAM/toshiruz-neobaka.gif)   ![](https://media.tenor.com/F_VLCN0YntwAAAAm/neuro-sticker-neuro-sama.webp)     
+ ![](https://media.tenor.com/SKKWSyUc8yQAAAAm/chainavt-chaina.webp)   ![](https://media.tenor.com/F_VLCN0YntwAAAAm/neuro-sticker-neuro-sama.webp)     
 
 *୨୧ ┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈ ୨୧*
 
